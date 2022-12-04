@@ -1,1 +1,3 @@
-Todas as imagens são de boa qualidade, eu selecionei uma variedade legal, mas atualmente uma boa parte são paisagens/digital arts, enjoy!
+#Wallpapers
+-> 97 Wallpapers actually, all of them are in 1080p or more
+

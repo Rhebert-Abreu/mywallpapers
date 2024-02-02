@@ -3,7 +3,7 @@
 
 
 New update, got some more ones, is actually more than 100 wallpapers, good quality and a nice art style, if you think that sucks going on internet and finding maybe will be worth to take a look at
-some o those, enjoy!
+some of those, enjoy!
 
 ![0095](https://github.com/Rhebert-Abreu/MyWallpapers/assets/97358816/76891b00-5c5d-43ff-b877-6bf499be699f)
 ![0096](https://github.com/Rhebert-Abreu/MyWallpapers/assets/97358816/bf69400a-04a8-4cc7-af13-dd43e588be3e)
